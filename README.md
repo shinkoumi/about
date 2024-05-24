@@ -10,7 +10,7 @@ cis man <sup>(probably)</sup> with a deep passion for anime girls and idols. if 
 
 <b>music:</b> giga, syudou, biz, 椎名林檎, ロス, ikasan, shimon, ゲスの極み乙女, ZERA, BOKUTACHI WA YONAYONA + [more](https://open.spotify.com/playlist/0bors9ef0y9aLhRjryIFEw?si=7d45bd6913bd476c).
 
-i hate westerners and foreigners, so if you are both of these and you're not my friend, stay away. if you are a foreigner and speak in east asian spaces, especially in media like jjk, genshin or hsr, i will block you. stop disrespecting our culture, thanks.
+i hate westerners and foreigners, so if you are both of these and you're not my friend, stay away. if you are a foreigner and speak in east asian spaces, especially in media like jjk, genshin, hsr, or yakuza, i will block you. stop disrespecting our culture, thanks.
 
 if i'm listening to music, you can find out here.
 
