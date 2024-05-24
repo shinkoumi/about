@@ -1,6 +1,6 @@
 <sub>for a tidier version, check my [patreon](https://www.patreon.com/seongmin/about).</sub>
 #
-you can call me <b>seong</b>min (성민), hyeonun (현운) or luin (ルーン)
+you can call me <b>seong</b>min (성민), hyeonun (현운) or luin (ルーン). check charas who are [literally me](https://github.com/shinkoumi/id).
 
 i am 16 years old, and i go by he/him pronouns mainly, but any is ok.
 
