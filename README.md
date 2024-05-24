@@ -2,7 +2,7 @@
 #
 you can call me <b>seong</b>min (성민), hyeonun (현운) or luin (ルーン). check charas who are [literally me](https://github.com/shinkoumi/id).
 
-i am 16 years old, and i go by he/him pronouns mainly, but any is ok.
+i am 16 years old, and i go by he/him pronouns mainly, but any is ok. [these are my friends](https://github.com/shinkoumi/friends).
 
 cis man <sup>(probably)</sup> with a deep passion for anime girls and idols. if you talk to me about アイマスP, i won't shut up.
 
