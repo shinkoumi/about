@@ -1,10 +1,12 @@
 <sub>for a tidier version, check my [patreon](https://www.patreon.com/seongmin/about).</sub>
 #
-you can call me <b>seong</b>min (성민), hyeonun (현운) or luin (ルーン). check charas who are [literally me](https://github.com/shinkoumi/id).
+you can call me <b>seong</b>min (성민) or luin (ルーン). check charas who are [literally me](https://github.com/shinkoumi/id).
 
 i am 16 years old, and i go by he/him pronouns mainly, but any is ok. [these are my friends](https://github.com/shinkoumi/friends).
 
 cis man <sup>(probably)</sup> with a deep passion for anime girls and idols. if you talk to me about アイマスP, i won't shut up.
+
+if you want to send me something, reach out to me through one of my [SNS](https://github.com/links).
 
 <b>interests:</b> jjk, アイマスP, 8:11, ドラマダ, funger, 電音部, muse dash, lhc, さよ教, スロダメ, 沙耶の唄, OFF, dbz, id7, wacca, ajin, グルコス, fortnite, roblox + ask for more.
 
