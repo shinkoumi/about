@@ -6,7 +6,7 @@ i am 16 years old, and i go by he/him pronouns mainly, but any is ok. [these are
 
 cis man <sup>(probably)</sup> with a deep passion for anime girls and idols. if you talk to me about アイマスP, i won't shut up.
 
-if you want to send me something, reach out to me through one of my [SNS](https://github.com/links).
+if you want to send me something, reach out to me through one of my [SNS](https://github.com/shinkoumi/links).
 
 <b>interests:</b> jjk, アイマスP, 8:11, ドラマダ, funger, 電音部, muse dash, lhc, さよ教, スロダメ, 沙耶の唄, OFF, dbz, id7, wacca, ajin, グルコス, fortnite, roblox + ask for more.
 
