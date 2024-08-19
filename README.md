@@ -14,4 +14,4 @@
 #
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hbh4739sxb5dmmz2nbq6ut6xn&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br>
-![](https://komarev.com/ghpvc/?username=shinkoumi&style=plastic&label=𒉭&abbreviated=true&base=7465&color=d3dadf)
+![](https://komarev.com/ghpvc/?username=shinkoumi&style=plastic&label=𒉭&abbreviated=true&color=d3dadf)
