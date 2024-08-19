@@ -13,4 +13,5 @@
 <br>of my friends. you're disrespectful of my culture and won't learn.</sub>
 #
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hbh4739sxb5dmmz2nbq6ut6xn&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<br>
 ![](https://komarev.com/ghpvc/?username=shinkoumi&style=plastic&label=𒉭&abbreviated=true)
