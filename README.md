@@ -12,4 +12,4 @@
 <br>honkai star rail specifically if you're not east asian yourself or one
 <br>of my friends. you're disrespectful of my culture and won't learn.</sub>
 #
-[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=hbh4739sxb5dmmz2nbq6ut6xn&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hbh4739sxb5dmmz2nbq6ut6xn&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
